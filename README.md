@@ -1,1 +1,0 @@
-# sample-assignment-1
